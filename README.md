@@ -1,1 +1,1 @@
-# AZ-ICL-MRes-Xinyue-s-OPLS-by-ropls
+# AZ-ICL-MRes-Xinyue-OPLS-by-ropls
